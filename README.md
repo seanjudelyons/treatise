@@ -2,7 +2,7 @@
 
 ## The Nature of Death
 
-Death renders everything both meaningless and yet meaningful by the end of a person's life. This paradox deserves our contemplation.
+Death renders everything both meaningless and yet meaningful by the end of a person's life. 
 
 The purpose of this essay is to think about success and death. Death seems to be the less popular word of the two. Why this is so, mightn't seem so obvious. We can speculate it owes to some inclining of uncertainty which might be associated to the word death. To wallow in an eternal darkness requires us to first assume there is an end to the living we are consistently experiencing. This of course is seen when we witness the death of others, but it is far from experienced. 
 
