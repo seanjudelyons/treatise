@@ -2,13 +2,15 @@
 
 ## The Nature of Death
 
-Death renders everything both meaningless and yet meaningful by the end of a person's life. This paradox deserves our contemplation.
+Death renders everything both meaningless and yet meaningful by the end of a person's life. 
 
-The purpose of this essay is to think about success and death. Death seems to be the less popular word of the two. Why this is so, mightn't seem so obvious. We can speculate it owes to some inclining of uncertainty which might be associated to the word death. To wallow in an eternal darkness requires us to first assume there is an end to the living we are consistently experiencing. This of course is seen when we witness the death of others, but it is far from experienced. 
+The purpose of this essay is to think about success and death. Death seems to be the less popular word of the two. Why this is so, mightn't seem so obvious. We can speculate it owes to some inclining of uncertainty which might be associated to the word death. 
 
-When we see someone die, we observe the cessation of their movement, their breathing, their responses - but we cannot truly know what they experience in that transition, if anything at all. To assume our own becoming into a lifeless corpse will remain speculation till our ultimate demise. This uncertainty persists because we can only know death from the outside, never from within. If we accept that our senses might deceive us - that what we perceive might not reflect ultimate reality - then even our observations of death in others become questionable. We see bodies cease to function, but can we truly know that consciousness ends? This fundamental uncertainty about our own mortality shapes how we approach life itself.
+To wallow in an eternal darkness requires us to first assume there is an end to the living we are consistently experiencing. This of course is seen when we witness the death of others, but it is far from experienced. When we see someone die, we observe the cessation of their movement, their breathing, their responses - but we cannot truly know what they experience in that transition, if anything at all. 
 
-Nonetheless, a plausible answer does not assume. Life therefore, is continuous, and nothingness is unimaginable. Success is far more interesting, it is fun, it is all the talk. But the way we might define success is philosophically troublesome.
+To assume our own becoming into a lifeless corpse will remain speculation till our ultimate demise. This uncertainty persists because we can only know death from the outside, never from within. If we accept that our senses might deceive us - that what we perceive might not reflect ultimate reality - then even our observations of death in others become questionable. We see bodies cease to function, but can we truly know that consciousness ends? 
+
+This fundamental uncertainty about our own mortality shapes how we approach life itself. Nonetheless, a plausible answer does not assume. Life therefore, is continuous, and nothingness is unimaginable. Success is far more interesting, it is fun, it is all the talk. But the way we might define success is philosophically troublesome.
 
 ## The Problem of Success
 
