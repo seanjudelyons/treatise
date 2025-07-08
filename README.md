@@ -2,7 +2,7 @@
 
 ## The Nature of Death
 
-Death renders everything both meaningless and yet meaningful by the end of a person's life. 
+Death renders everything both meaningless and yet meaningful by the end of a person's life. This paradox deserves our contemplation.
 
 The purpose of this essay is to think about success and death. Death seems to be the less popular word of the two. Why this is so, mightn't seem so obvious. We can speculate it owes to some inclining of uncertainty which might be associated to the word death. To wallow in an eternal darkness requires us to first assume there is an end to the living we are consistently experiencing. This of course is seen when we witness the death of others, but it is far from experienced. 
 
@@ -18,7 +18,11 @@ Happiness similarly is often confused with pleasure, though the feeling of achie
 
 If we are to consider feeling as a valid epistemological input, then we can conclude there is a higher degree of biologically instilled "want" associated to indulging in sweet treats. However, want, is often popularized as a foundational principle behind all success. Perhaps the most popular saying is, "find something you want to do". 
 
-The problem lies in the vague sentiment of want. If want is something we seek to have, then having or wanting to have seems to be the distilled problem. "To have" and "have" must be viewed upon as separate idiosyncrasies. A prince can be the heir of a throne he simply has, but a beggar seeking to be a king is closer to wanting to have. If now, we focus on success in the eyes of the beggar, we find and see what he heavily places value on.
+The problem lies in the vague sentiment of want. But we must distinguish between different forms of possession. A prince inherits a throne - he simply has it, without striving. A beggar who dreams of kingship knows only the wanting to have, the yearning for what lies beyond reach.
+
+If we examine what each values as success, we see the difference clearly. The prince, born to power, may find success in wisdom or virtue or even in giving his throne away. He can transcend possession because he never knew its absence. But the beggar defines success as the very thing he lacks - the crown, the wealth, the recognition. His want shapes his entire vision of what matters.
+
+This reveals the trap: when we lack something, we imagine that having it would complete us. Want creates its own mythology, convincing us that success means obtaining what we desire. But those who already possess what others crave often discover its emptiness. The question then becomes: can we see beyond our wants to what truly matters, or are we forever prisoners of what we lack?
 
 ## Death and Free Will
 
